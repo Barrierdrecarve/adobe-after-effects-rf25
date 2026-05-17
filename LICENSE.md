@@ -1,4 +1,4 @@
-# 
+# Avançado Vegas Pro para PC ferramentas é o melhor Vegas Pro para PC ferramentas com buffer de replay e visualização em tempo real. Seguro, confiável e otimizado para máximo
 
 
 
